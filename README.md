@@ -1,2 +1,2 @@
-# vedikadigitalsolutions.com
+# vedikadigitalsolutions
 CCTV Dealer and Projector Rental 
