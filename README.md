@@ -1,2 +1,2 @@
-http://www.vedikadigitalsolutions.com/
+vedikadigitalsolutions.com
 CCTV Dealers and Projector Rental in Udaipur
